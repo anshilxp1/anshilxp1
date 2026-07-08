@@ -8,7 +8,7 @@
 
 <br/>
 
-📍&nbsp;Kanpur, Uttar Pradesh, India &nbsp;|&nbsp;🎓&nbsp;B.Tech CSE, Dr. Ambedkar Institute of Technology for Handicapped, Kanpur (2021–2025) &nbsp;|&nbsp;💼&nbsp;Data Analytics Intern @ Alfido Tech
+📍&nbsp;Lucknow, Uttar Pradesh, India &nbsp;|&nbsp;🎓&nbsp;B.Tech CSE, Dr. Ambedkar Institute of Technology for Handicapped, Kanpur (2021–2025) &nbsp;|&nbsp;💼&nbsp;Data Analytics Intern @ Alfido Tech
 
 <br/>
 
